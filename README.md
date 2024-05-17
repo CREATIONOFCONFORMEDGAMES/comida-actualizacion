@@ -1,2 +1,0 @@
-# comida-actualizacion
-asgas
